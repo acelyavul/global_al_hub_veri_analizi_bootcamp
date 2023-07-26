@@ -1,0 +1,1 @@
+# global_al_hub_veri_analizi_bootcamp
